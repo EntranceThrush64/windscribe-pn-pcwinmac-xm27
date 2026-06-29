@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://EntranceThrush64.github.io/windscribe-pn-pcwinmac-xm27/) |
  |---------------------|----------------------:|
 
 
